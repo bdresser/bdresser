@@ -8,8 +8,7 @@ I’m currently learning:
 🍜 &nbsp;  and I'm always trying to up my cooking game  
 
 I'm currently reading:  
-📚 &nbsp;  No Name in the Street (by James Baldwin)  
-🔮 &nbsp;  The Death and Life of Great American Cities (by Jane Jacobs)  
+📚 &nbsp;  The Sellout (by James Beatty)  
 
 Ask me about:  
 ⚙️&nbsp;   product management  
